@@ -8,3 +8,6 @@
 💬 Always open to tech discussions & collaborations. Feel free to reach out!
 
 🔗 [LinkedIn](https://www.linkedin.com/in/alican-uelger)
+🔗 [Reddit](https://www.reddit.com/user/Kitchen-Object-5642)
+
+🖋️ Blogs [alican-uelger.com](https://alica-uelger.com)
