@@ -10,4 +10,10 @@
 🔗 [LinkedIn](https://www.linkedin.com/in/alican-uelger)
 🔗 [Reddit](https://www.reddit.com/user/Kitchen-Object-5642)
 
-🖋️ Blogs [alican-uelger.com](https://alica-uelger.com)
+📧 contact@alican-uelger.com
+
+---
+
+🖋️ Blogs [alican-uelger.com](https://alica-uelger.com) 
+
+
