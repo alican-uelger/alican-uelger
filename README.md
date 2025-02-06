@@ -14,6 +14,6 @@
 
 ---
 
-🖋️ Blogs [alican-uelger.com](https://alica-uelger.com) 
+🖋️ Blogs [alican-uelger.com](https://alican-uelger.com) 
 
 
